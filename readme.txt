@@ -2,3 +2,21 @@ NUESTRO GRUPO ES:
 - ARROYO JAIMES DIEGO
 - GOMEZ SOTO GUSTAVO
 uwu 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+GRANDE UWU > CRINGE OWO
